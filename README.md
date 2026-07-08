@@ -1,4 +1,3 @@
-# office-reader-pro-privacy
 # Politique de confidentialité — Office Reader Pro
 
 Dernière mise à jour : 8 juillet 2026
