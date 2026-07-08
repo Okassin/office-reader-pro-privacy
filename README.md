@@ -42,5 +42,6 @@ Cette politique peut être mise à jour afin de refléter les améliorations de 
 
 Pour toute question concernant cette politique de confidentialité, vous pouvez nous contacter via :
 
-EL TECH — EL EMPIRE
-Email : [votre-email@exemple.com](mailto:votre-email@exemple.com)
+AUCASS DIGI — EL EMPIRE
+Email : danielbolumbu0606@gmail.com
+Whatsapp : +243815253822
